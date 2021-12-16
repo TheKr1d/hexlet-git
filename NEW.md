@@ -1,1 +1,0 @@
-Hi, Vlad, you ready?
